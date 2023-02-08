@@ -1,1 +1,1 @@
-my name is tee
+my name is te
